@@ -43,7 +43,7 @@ Pressuring elected officials to:
 If you’ve made it this far I appreciate you. I hope we allow ourselves to listen when it is hard, speak up when it is difficult, and find at least one thing within our means to help with the global efforts underway. 
 Do not underestimate the transformative power of choice. Making even one small change each month or year has a compounding effect and can make massive changes seem more attainable.
 
-The last thing I want to leave you with, is this: Don’t give in to the feeling of apathy, ~~if enough people think their efforts won't matter, no one will take action. If enough people realize that this matters, we WILL move closer to our goal. Thank you for your time.~~
+The last thing I want to leave you with, is this: Don’t give in to the feeling of apathy, ~~if enough people think their efforts won't matter, no one will take action~~. If enough people realize that this matters, we WILL move closer to our goal. Thank you for your time.
 
 -Jose (HitMeWMusic)
 
