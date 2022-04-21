@@ -8,7 +8,7 @@ With regards to the environment, it feels like there isn’t much a person can d
 
 Reality checks have a way of resurfacing. The planet demonstrates many warning signs<br> 
 through changes in collected data. Evidence reaffirms there’s not much to debate in the facts. As is <br>
-the case with many, they aren’t lacking the information. For some, the diagnosis may be just a thicker 
+the case with many, they aren’t lacking the information. For some, the diagnosis may be just a thicker <br>
 skull with regards to changing information. Apathy often arises when day-to-day survival alone becomes challenging, the plagues of physical and mental health recalibrate our priorities and actions. It's difficult to survive our day to day, let alone worry about things on a global scale. Despite all these things, It's hard to overstate the gravity of these issues without sounding like an alarmist. The data from scientific research is abundantly clear: We are in a climate emergency, and there is no denying it. We must act now. 
 
 ### The Problem.
