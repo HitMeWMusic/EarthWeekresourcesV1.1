@@ -6,8 +6,8 @@ I want to take this time before earth day to write about the current state of th
 	
 With regards to the environment, it feels like there isn’t much a person can do to really make an impact. In my opinion, I think this describes how many of us feel when considering this. We find ourselves wavering between concern and apathy, or perhaps resentment when we see that our small efforts are canceled out by the actions of another. Many ask the question “What can I do as an individual?” and “Does anything I do matter?”. Given the prevalence of these conversations, makes them worth addressing and modifying these thoughts with more accurate mental models of the situation.
 
-Reality checks have a way of resurfacing. The planet demonstrates many warning signs 
-through changes in collected data. Evidence reaffirms there’s not much to debate in the facts. As is 
+Reality checks have a way of resurfacing. The planet demonstrates many warning signs<br> 
+through changes in collected data. Evidence reaffirms there’s not much to debate in the facts. As is <br>
 the case with many, they aren’t lacking the information. For some, the diagnosis may be just a thicker 
 skull with regards to changing information. Apathy often arises when day-to-day survival alone becomes challenging, the plagues of physical and mental health recalibrate our priorities and actions. It's difficult to survive our day to day, let alone worry about things on a global scale. Despite all these things, It's hard to overstate the gravity of these issues without sounding like an alarmist. The data from scientific research is abundantly clear: We are in a climate emergency, and there is no denying it. We must act now. 
 
